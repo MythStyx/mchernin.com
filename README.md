@@ -1,2 +1,0 @@
-# mchernin.com
-mchernin.com
